@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nat1-S
 - 👀 I’m interested in learning code and information security
-- 🌱 I’m currently learning MBA and Cyber security course
+- 🌱 I’m currently learning MBA and Product Management 
 - 💞️ I’m looking to collaborate on different projects 
 - 📫 You can find me on my Email
 - 😄 Pronouns: Nati
